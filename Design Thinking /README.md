@@ -1,1 +1,1 @@
-## Design Thinking (Low Fidelity Prototype) 
+## DESIGN THINKING (LOW FIDELITY PROTOTYPE) 
