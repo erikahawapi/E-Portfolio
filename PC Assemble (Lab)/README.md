@@ -1,4 +1,4 @@
-![Vision Board Photo Collage (1)](https://github.com/erikahawapi/E-Portfolio/assets/148413074/d5756926-e899-44a9-a423-a673e1f379de)
+![Vision Board Photo Collage (2)](https://github.com/erikahawapi/E-Portfolio/assets/148413074/956ebb8f-3a72-40cd-ace6-f6826d56d653)
 
 ## PC ASSEMBLE (LAB)
 In the PC assembly lab and quiz session, students engaged in a hands-on experience of disassembling and reassembling a personal computer. Students gained practical insights into the intricacies of computer hardware, honed their assembly skills, and solidified their understanding through a quiz assessing their theoretical knowledge.
