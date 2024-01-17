@@ -1,4 +1,4 @@
-## VIRTUAL TALK AND VISIT TO UTMDIGITAL
+## INDUSTRIAL TALK AND VISIT: UTMDIGITAL
 
 UTM's digital virtual talk provided a comprehensive overview of UTM digital before the actual visit on December 19, 2023. During that time, students were given various perspectives and experiences to explore places such as the most prominent office in UTMDigital, meeting rooms, digital care and even a data centre.
 
